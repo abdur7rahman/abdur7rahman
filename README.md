@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on ... Inspiring Persons
 - 📫 How to reach me ...
                         @abdur_7_rahman_ at Insta
-                        Abdur Rahman F R at LinkedIn
-
+                        https://www.linkedin.com/in/abdur-rahman-f-r-055922271 at LinkedIn
+                        📧 abdurfaijur.730@gmail.com
 
 abdur7rahman/abdur7rahman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
